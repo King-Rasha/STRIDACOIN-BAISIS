@@ -1,2 +1,4 @@
-Yes this is a website about my school and my dog and a way to send infomation faster.
-very cool idea and very initiative in my opinion. 
+This is a website for all users in baisis to get the fastest information from around schools.
+Any information will be sent here within 5 days and the best thing, its FREE!.
+
+ 
